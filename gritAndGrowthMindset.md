@@ -15,5 +15,15 @@ positively to improve yourself.
 Internal Locus of control is the way to control over ourself that makes you to reach your destiny. 
 The external locus is just an excuse to achieve your dream. The internal locus helps you to achieve a growth mindset with self-control.
 
-## 4. Mindset - A MountBlue Warrior Reference Manual
-### Q4: What are your ideas to take action and build Growth Mindset?
+## 4. How to build a Growth Mindset
+### Q4: What are the key points mentioned by the speaker to build a growth mindset (explanation not needed).
+The speaker mentioned the key points to building a growth mindset as follows:
+1. Believe in yourself.
+2. respect the struggle
+3. accept and deliever the challenges.
+4. Last but not least always having mindset that "I can do this".
+
+## 5. Mindset - A MountBlue Warrior Reference Manual
+### Q5: What are your ideas to take action and build Growth Mindset?
+Building a growth mindset is not a one-day process. Every day, you have to believe on your process to achieve your one target to another.
+It's important that when you struggling a lot then respect that phase accept the challenges that come to you and make faith or believe in yourself that you will do it.
